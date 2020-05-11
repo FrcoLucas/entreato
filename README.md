@@ -1,1 +1,97 @@
-# entreato
+ENTR3ATO: ENXERTOS POÉTICOS - ANTOLOGIA COMENTADA
+
+{Descrição na INTRODUÇÃO:
+
+O livro se trata da JORNADA de um ser, representado por um escritor, durante sua vida, representada pela sua obra
+
+também representa o processo de construção de um pensamento (encadeamento de ideias)
+
+
+É feito como um livro de MEMÓRIAS
+
+
+Por fim é um livro sobre a busca de entender a própria DOENÇA. Pensando hoje, realmente insight daquilo de que já falava o Dr Ednaldo. O meu problema maior pode ser mais a personalidade do que o TAB. A minha personalidade induz a subida ou queda do humor. O TAB é apenas uma comorbidade.
+
+
+}
+
+{ENGRAÇADO, DÁ PRA FALAR QUE EU NUNCA TIVE UM ZELO OU CUIDADO MINUCIOSO SOBRE ESSA ARTE FINAL DOS TEXTOS E OBRA. MAS QUE AGORA NESTE LIVRO HOUVE ALGO ADICIONAL NESSE SENTIDO}
+
+Porque tem muitos títulos esse livro, então dá pra fazer assim: o amarelo que eu queria originalmente na capa do 3 pode ser realizado com aquele embrulho feito em papel manteiga, fazendo transparência com o livro interno. A capa interna ser o do ENXERTOS em si. Pode ter coisas como pinças, fios, papel de VÁRIAS CORES ORA SÍMBOLIZAR A VARIEDADE DAQUILO DE QUE SOMOS FEITOS, e a tudo mostrando a figura do manequim o pequeno POUL de madeira, como numa cirurgia mesmo. Pode até não ter as coisas e fazer monocromático, minimalista, com arte GRAFITE representando os fios e a pele. É Como o momento de uma cirurgia. Enxertoplastia. Vista de cima. Ali não importa mostrar quem seja o ser que conduz o procedimento, mas mostrar o operado. Então grafite por sobre foto mesmo.
+
+
+
+{Como em Lord of The Rings, pode ser uma obra feita de prosa intercalada por versos - em algum momento jogar o título: PROSOPOPEIA. Errei a palavra, mas ver o significado. Muito bom. O certo é PROSA POÉTICA}
+
+
+3º ATO
+
+
+Quanto tempo se espera uma ressurreição?
+
+
+Quanto tempo dura uma ressurreição?
+
+
+O que faz entre os dois estados?
+
+
+
+
+Quantas vezes é preciso morrer antes de cravar/mover a pedra? Quantas vezes é preciso nascer para remover a pedra?
+
+
+
+O terceiro está entre atos. É o retorno a um passado de reminiscências. Impressões passageiras e esquecidas em algo submerso. A serenidade se torna novae. Do primeiro ao último verso.
+
+
+Este folhear de livros repartidos por afeto. Compassivos. TALVEZ, NÃO REVELE SER AQUELE a persona de um mundo dobrado às custas de um ajoelhar-se para si próprio. Uma gravidade matematicamente falsa.
+
+
+{Colocar a classificação da minha personalidade segundo Ednaldo. Inclusive ÓTIMA IDEIA ele escrever o Pefácio. E veja, o do primeiro foi escrito por alguém das artes; o segundo, . O terceiro biológicas. Ou será que este exatas?}
+
+
+{Aproveitar e transcrever o ÁUDIO DA CONSULTA. Título algo como DIÁLOGO SOBRE O INFINITO}
+
+
+Os símbolos muitas vezes se completam depois de muitos elos. Le pandu. Preso e dependurado ao contrário pelo pé esquerdo. O direito sobre este cruzado. As mãos para traz. Os olhos fechados. É uma vida estática. A resiliência deu lugar à passividade. Entrega antes da guerra é acordo ou aliança? Sacrifício pela metade não forma um mártir. Sacrifício para nada. Sacrifício sem perdas. Sacrifício por uma causa perdida. Representa aquele que dorme
+
+
+Sonho: o brilho dos tortos.
+
+
+
+
+ENTRE OS ATOS DE PEÇA
+MAS NÃO CHEGA AO TERCEIRO ATO DE FATO
+
+
+
+
+{ Colocar à frente os versos excluídos de Brasa, com o título: ENTREBRASAS}
+
+{EXPLICAR O BUSTO DA CAPA, A FIGURA DE DAVI. DEIXAR IMAGEM EM MÁRMORE, MOSTRANDO O ROSTO POR COMPLETO (NOTA: COMO EM DARK SOULS 3, A FIGURA ACESA, REPRESENTANDO O CARVÃO)}
+
+CAMINHA POR SOBRE FAÍSCAS, PORQUE SÃO SEUS PÉS QUE ARDEM. NÃO DOEM, REALMENTE NÃO. ESTES PÉS TÊM CICATRIZES QUE AO CONTRÁRIO DO QUE SE FALA TÊM SIM UM GRANDE SIGNIFICADO (ISTO AQUI SOBRE A CONVERSA COM DRA POLIANA): SÃO MARCAS DAQUILO DE QUE FOMOS E SOMOS FEITOS.
+
+
+{Colocar à frente as memórias, os motivos, o curso e os custos da criação e construção do primeiro livro e propriamente da escrita, com o título: ENTRETAÇAS}
+
+{Escrever sobre o símbolo construído no pseudonimo POUL VENTURA: Pequeno, Que sopra, Que se renova (polder, inclusive dá pra comparar. Não é ele tem o PODER de se renovar, aquele em que isso acontece por alguma VENTURA - Algo que sopra)
+
+{O SIGNIFICADO DESCOBERTO DURANTE ESTA ESCRITA EM 10/MAIO 01H 02H 03H FECHA O LIVRO. É O QUE NA VERDADE PODE SE TRATAR O VENTURA NO MEU NOME:
+
+É ser conduzido, não empurrado por algo maior, mesmo sem encontrá-lo, descrevelo, apenas sentido, como o vento. AÍ FALAR DA MINHA CONCEPÇÃO RELIGIOSA, DO AMAR AS PEDRAS, FAZER O QUE SE SENTE CERTO, NÃO SE IMPORTAR EM ESTAR CERTO OU NÃO}
+
+FECHAR TAMBÉM DIZENDO QUE PARECE ENGRAÇADO, MAS SÍMBOLO PODE SER VEM DIFERENTE DE SIGNIFICADO. NÃO É UM CONCEITO FECHADO, DEFINIDO, MAS SIM UM AMÁLGAMA. ESTE LIVRO NÃO DEIXA DE SER TAMBÉM A CONSTRUÇÃO DE TODA A SIMBOLOGIA EM VOLTA DA MINHA ESCRITA.
+
+
+
+Será que falam de propriedades da consciência?
+O meia Taça trata do TAB (humor)
+O brasa trata da personalidade
+O entreato do autoconhecimento?
+https://pt.m.wikipedia.org/wiki/Filosofia_da_mente_de_John_Searle
+
+
+TEXTO AVULSO: a fé não pode ser cegada pela crença. Uma vez cegos, voltar a enxergar completamente é para poucos. É plenamente possível contemplar sem olhos. Impossível sem alma.
